@@ -1,2 +1,0 @@
-# hackermruczka
-hacker hacker!!!!!
